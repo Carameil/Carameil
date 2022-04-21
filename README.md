@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Carameil
+👋 Hi, I’m @Carameil
 
 👀 I’m interested in video games, music, board games and especially, web development.
 

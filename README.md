@@ -2,7 +2,7 @@
 
 👀 I’m interested in video games, music, board games and especially, web development.
 
-🌱 I’m currently learning Backend dev. with Youtube.
+🌱 I’m currently learning Backend dev. with Youtube and documentations.
 
 💞️ I’m looking to collaborate on ... well, now I'm just learning)
 

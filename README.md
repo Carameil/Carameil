@@ -1,3 +1,7 @@
+https://ibb.co/pLrFy6F
+
+##
+
 👋 Hi, I’m Bolbas Nikita, I'm 20. I'm studying in Mocscow State University Technology "Stankin"
 
 👀 I’m interested in video games, music, board games and especially, web development.
